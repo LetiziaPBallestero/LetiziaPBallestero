@@ -1,1 +1,3 @@
-Yeah, Letizia with z. Also has an accent on the last i. 
+Seh, es Letizia con Z. También lleva acento en la i. 
+<br>
+Estudio APU (Analista Programador Universitario) en la UNLP.
